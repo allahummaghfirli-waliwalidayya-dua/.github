@@ -13,8 +13,7 @@ This dua is a plea to Allah (SWT) for forgiveness, encompassing both the person 
 
 **Transliteration:**
 
-[Allahummaghfirli Waliwalidayya](https://surahyasin.org/allahummaghfirli-waliwalidayya-dua/)
-
+Allahummaghfirli Waliwalidayya
 **Urdu Translation:**
 
 اے اللہ! مجھے اور میرے والدین کو بخش دے۔
